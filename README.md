@@ -127,7 +127,7 @@
 ---
 
 # 📄 Resume
-📑 [Click here to view my Resume](https://drive.google.com/file/d/13A13z4ki3IItw3CackPaNjuGoRKpYwzG/view?usp=sharing)
+📑 [Click here to view my Resume](https://drive.google.com/file/d/1kaPWfwtRAu9VChDIC4sVoPaXUsb5H_g7/view?usp=sharing)
 
 ---
 
